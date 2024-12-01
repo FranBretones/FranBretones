@@ -1,6 +1,3 @@
-💫 About Me:
-Hola!....... 👋 ⁣⁣
-
 
 🌐 Socials:
 LinkedIn
